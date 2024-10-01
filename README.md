@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mertyss
-- 👀 I’m interested in: PC, IT, I 🧡 cars, 
+- 👀 I’m interested in: PC, IT, I 🧡 cars, Games, English
 - 🌱 I’m currently learning: C# and Unity
 - 📫 How to reach me: Disc: @mertyhraje Mail: mertysek.games@gmail.com
 
